@@ -1,1 +1,5 @@
+![ac: wszczebrzyszynie on tumblr](https://files.catbox.moe/3uvcbp.png)
+# metta's intro WIP :)
+
+have some stamps for now <3
 ![matikanefukukitaru oshi](https://files.catbox.moe/ladd0y.gif) ![horses are badass](https://files.catbox.moe/aho7ra.gif) ![i love eating stamps](https://files.catbox.moe/tv6vew.gif) ![you have no idea](https://files.catbox.moe/6geaf6.png) ![gender???](https://files.catbox.moe/sipaoe.png) ![your idols mess up too](https://files.catbox.moe/lyqjmi.gif)
