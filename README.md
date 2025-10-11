@@ -9,4 +9,4 @@ multifandom ﹕ almost always in cookie run area, sometimes deltarune, check rep
 
 ‹𝟹 c+h, rp　 ／／ 　‹﹨𝟹 flirting, petnames
 
-QUERS, QUINKS, BLANKEY GCS >>>>>>
+M, J, B, C, M, Z >>>>>>
