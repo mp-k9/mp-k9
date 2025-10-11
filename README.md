@@ -5,6 +5,8 @@ metta ﹠ redstone　˶　he﹨it﹨xe﹨vir ⠀ ⟢ 　audhd+ ⠀ ᵎᵎ 　loo
 
 dni ﹔ basic dni, hellaverse, hoyoverse, wilbur soot supporters/neutral
 
-wip, fandoms tba
+multifandom ﹕ almost always found in cookie run area, sometimes deltarune
 
-‹ QUERS, QUINKS, BLANKEY GCS 𝟹
+‹𝟹 c+h, rp　 ／／ 　‹﹨𝟹 flirting, petnames
+
+QUERS, QUINKS, BLANKEY GCS >>>>>>
