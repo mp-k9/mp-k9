@@ -1,11 +1,11 @@
 ![ac: wszczebrzyszynie on tumblr](https://files.catbox.moe/3uvcbp.png)
 # ⠀⌓⌓ 　metta's intro
 
-metta ﹠ redstone　˶　he﹨it﹨xe﹨vir ⠀ ⟢ 　audhd+ ⠀ ᵎᵎ 　look in repositories for extended info
+metta ﹠ redstone　˶　he﹨it﹨xe﹨vir ⠀ ⟢ 　audhd+ ⠀ ᵎᵎ 　check repositories for extended
 
 dni ﹔ basic dni, hellaverse, hoyoverse, wilbur soot supporters/neutral
 
-multifandom ﹕ almost always found in cookie run area, sometimes deltarune
+multifandom ﹕ almost always in cookie run area, sometimes deltarune, check repositories for extended fandoms
 
 ‹𝟹 c+h, rp　 ／／ 　‹﹨𝟹 flirting, petnames
 
