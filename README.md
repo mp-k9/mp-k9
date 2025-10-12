@@ -5,7 +5,7 @@ metta ﹠ redstone　˶　he﹨it﹨xe﹨vir ⠀ ⟢ 　audhd+ ⠀ ᵎᵎ 　che
 
 dni ﹔ basic dni, hellaverse, hoyoverse, wilbur soot supporters/neutral
 
-multifandom ﹕ almost always in cookie run area, sometimes deltarune, check repositories for extended fandoms
+multifandom ﹕ almost always in cookie run area, sometimes deltarune or mcyt, check repositories for extended
 
 ‹𝟹 c+h, rp　 ／／ 　‹﹨𝟹 flirting, petnames
 
