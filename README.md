@@ -9,4 +9,4 @@ multifandom ﹕ almost always in cookie run area, sometimes deltarune or mcyt, c
 
 ‹𝟹 c+h, rp　 ／／ 　‹﹨𝟹 flirting, petnames
 
-M, J, B, C, M, Z >>>>>>
+M, B, C, M, Z >>>>>>
