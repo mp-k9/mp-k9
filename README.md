@@ -1,6 +1,6 @@
-![](https://files.catbox.moe/tzowf0.webp)
+<p align="center"> <img src="https://files.catbox.moe/tzowf0.webp">
 
-<p align=center> 𝝑 [sign ata](https://mpk9.atabook.org/) 𝝔
+<p align=center> 𝝑 metta , redstone 𝝔
 
 ***
 
