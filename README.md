@@ -1,12 +1,17 @@
-![ac: wszczebrzyszynie on tumblr](https://files.catbox.moe/3uvcbp.png)
-# ⠀⌓⌓ 　metta's intro
+![](https://files.catbox.moe/tzowf0.webp)
 
-metta ﹠ redstone　˶　he﹨it﹨xe﹨vir ⠀ ⟢ 　audhd+ ⠀ ᵎᵎ 　check repositories for extended
+<p align=center> 𝝑 [sign ata](https://mpk9.atabook.org/) 𝝔
 
-dni ﹔ basic dni, hellaverse, hoyoverse, wilbur soot supporters/neutral, generative AI users (YES THIS MEANS C.AI)
+***
 
-multifandom ﹕ almost always in cookie run area, sometimes deltarune or mcyt, check repositories for extended
+<p align=center> ⌓⌓ 　check repositories for extended info & fandoms
 
-‹𝟹 c+h, rp　 ／／ 　‹﹨𝟹 flirting, petnames
+<p align=center> dni ﹔ basic dni, hellaverse, hoyoverse, wilbur soot supporters/neutral, genAI users (YES THIS MEANS C.AI)
 
-KUKI GC, M, B, C, M, Z, N >>>>>>
+<p align=center> c+h always welcome!
+
+<p align=center> w2i, usually afk/offtab
+
+<p align=center> no flirting/ships unless specified
+
+<p align=center> kuki gc, m, b, c, m, z, n >>>>>>
